@@ -1,0 +1,6 @@
+- 👋 sou Guilherme Enrik Mendonça Moreira
+- Sou estudante do Colégio Estadual DR. Arnaldo Busatto
+- Estou no segundo ano D do ensino médio
+- Tenho 16 anos 
+- Minha matéria favorita é matematica
+- Gosto de jogos eletronicos 
